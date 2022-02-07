@@ -1,1 +1,1 @@
-# [Alex Gillespie]'s Notes
+# Alex Gillespie's Notes
